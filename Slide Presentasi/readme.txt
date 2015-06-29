@@ -1,1 +1,0 @@
-kemanan informasi
